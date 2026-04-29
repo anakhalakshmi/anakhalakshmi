@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 Doing BCA | St Joseph's College Irinjalakuda | AI & Tech Explorer<br>🌱 Leveling up in AI , consulting<br>👯 Always open to collabs on tech projects<br>🤝I’m looking for help with AI projects & building real-world skills<br>💬 Ask me about AI, coding & anything tech<br>⚡ I debug life the same way I debug code.
+🎓 Doing BCA | St Joseph's College Irinjalakuda | AI & Tech Explorer<br>🌱 Leveling up in AI <br>👯 Always open to collabs on tech projects<br>🤝I’m looking for help with AI projects & building real-world skills<br>💬 
 
 
 ## 🌐 Socials:
